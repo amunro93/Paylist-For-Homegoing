@@ -7,4 +7,4 @@ A project for English
 
 ## Playlist songs/quotes and reasonings:camera:
 
-## [Back to top](#Playlist-For-Homegoing):arrow up:
+## [Back to top](#Playlist-For-Homegoing):up:
