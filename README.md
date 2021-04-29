@@ -5,6 +5,6 @@ A project for English
 
 ## Playlist:sound:
 
-## Playlist songs/quotes and reasonings:song:
+## Playlist songs/quotes and reasonings:music:
 
 ## [Back to top](#Playlist-For-Homegoing):dog:
