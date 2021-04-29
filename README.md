@@ -3,10 +3,10 @@ A project for English
 
 ## How does generational trama effect people in todays time?:thinking:
 
-## Playlist:sound:
+## Playlist:sound::music:
 
 
-## Playlist songs and reasonings:reasoning:
+## Playlist songs and reasonings
 
 
 ## Back to top
