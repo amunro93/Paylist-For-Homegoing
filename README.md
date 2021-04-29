@@ -3,6 +3,45 @@ A project for English
 
 ## How does generational trama effect people in todays time?:thinking:
 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 ## Playlist:sound:
 
 
