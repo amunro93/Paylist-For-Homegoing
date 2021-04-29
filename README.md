@@ -1,2 +1,2 @@
 # Paylist-For-Homegoing
-A project for English 10
+A project for English 
