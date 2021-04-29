@@ -3,7 +3,7 @@ A project for English
 
 ## How does generational trama effect people in todays time?:thinking:
 
-## Playlist:music:
+## Playlist:sound:
 
 
 ## Playlist songs and reasonings 
